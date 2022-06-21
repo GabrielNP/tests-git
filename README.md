@@ -12,3 +12,6 @@ Atualização 8
 
 Bem-vindo Anthony!
 Ultima Atualizacao
+
+
+Pode continuar, Ricardo!
